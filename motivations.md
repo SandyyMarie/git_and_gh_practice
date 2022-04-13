@@ -1,0 +1,1 @@
+I came from working in Health Care for 6 years and very quickly hit my pay cap before I turned 30. I realized I didn't want to feel capped/limited so young in my life and have always had a passion for computers so I decided I wanted both the work/life flexibility and the opportunity to advance my new career.
