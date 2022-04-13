@@ -1,0 +1,1 @@
+My favorite vacation that I can recall is when my mother took me around Puerto Rico introducing me to distant relatives and telling me about her childhood and history around the island. Now that she has passed away I really wish I could take a trip like that again.
